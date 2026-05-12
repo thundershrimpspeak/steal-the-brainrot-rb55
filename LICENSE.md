@@ -1,4 +1,4 @@
-#  
+#  stealth Scripts for steal the brainrot base is the best steal the brainrot base Script, featuring auto-collect and no cooldown. Safe and powerful for
 
 
 
